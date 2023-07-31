@@ -1,5 +1,5 @@
-find me on https://twitter.com/WolfPlay_Posts or WolfPlay013#8948 on discord.
+i pretend that i know how to code
 
-
+https://wolfplay013.carrd.co/
 
 - Wolf
